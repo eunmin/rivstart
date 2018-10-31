@@ -14,6 +14,6 @@ en stor biff med pommes frites och bearnaisesås. Mums!
 i Sverige.
 
  Klockan halv åtta äter Renate middag. Efter middagen diskar hon och spelar lite
-piano. Pianot är en present från Klaus, Renate son. Klockan no börjar Renate
+piano. Pianot är en present från Klaus, Renate son. Klockan nio börjar Renate
 favoritprogram på teve. Det heter Familjen. Sedan är hon mycket trött. Hon går och
 lägger sig vid halv elva och somnar direkt.
