@@ -1,6 +1,7 @@
 # Renates dag
 
 fetstil : **subjekt**
+
 kursiv typsnitt : *verb*
 
 **Renate** *är* en mycket aktiv pensionär. **Hon** *vaknar* klockan sex och stiger upp direkt.
