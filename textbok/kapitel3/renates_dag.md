@@ -37,7 +37,7 @@ en biff : biffen
 en timme : timmen
 ett mejl : mejlet
 en vän : vänen
-att hus : huset
+ett hus : huset
 en middag : middagen
 ett piano : pianot
 en present : presenten
